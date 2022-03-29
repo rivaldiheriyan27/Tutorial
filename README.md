@@ -4,7 +4,7 @@
 
 ## Latar Belakang
 
-> Motivasi saya ingin menunjukan bahwa sukses tidak harus menjadi PNS
+> Motivasi saya ingin aaaaaaa menunjukan bahwa sukses tidak harus menjadi PNS
 
 ## Motivasi
 
